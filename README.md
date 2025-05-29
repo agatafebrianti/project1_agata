@@ -1,1 +1,2 @@
-# project1_agata
+BERIKUT INI LINK PRESENTASI SAYA
+https://youtu.be/DIfANeSYFTQ
